@@ -1,0 +1,4 @@
+- Hi, I’m @YummyJelibon
+- I’m currently learning Python
+- Discord : Jelibon#4207
+- E-mail : yummyjelibon@gmail.com
